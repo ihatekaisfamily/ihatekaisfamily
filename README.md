@@ -1,4 +1,7 @@
-## Hi there 👋
+HAIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII 
+
+SO IM WORKING ON A GODOT PROJECT RN
+ITS MORE LIKE A HOBBY TO ME SO NOTHING SERIOUS BUT I LOVE IT!!
 
 <!--
 **ihatekaisfamily/ihatekaisfamily** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
